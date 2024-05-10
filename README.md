@@ -1,5 +1,5 @@
 hello hello
-- 👀 I’m interested in UNITY!!!!!!!!!!!!!! UNITY of Goddddddddddddddd
+- 👀 I’m interested in UNITY!!!!!!!!!!!!!! UNITY is Goddddddddddddddd
 - 🌱 I’m currently learning UNITY..!!
 - 💞️ I’m looking to collaborate on secret....!!
 - 📫 How to reach me ...
